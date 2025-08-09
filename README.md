@@ -1,2 +1,2 @@
 # MintraHax-Online
-In online liib
+In online liib pibg moblie
